@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **yashpaunikar2000@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/ASUS/Downloads/Yash_Paunikar.pdf](file:///C:/Users/ASUS/Downloads/Yash_Paunikar.pdf)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gSlx9ul_oF_8S4ldOTitkb-v9oss04fx/view?usp=drive_link](https://drive.google.com/file/d/1gSlx9ul_oF_8S4ldOTitkb-v9oss04fx/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
